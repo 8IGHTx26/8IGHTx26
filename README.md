@@ -1,5 +1,5 @@
 # 💫 About Me:
-As a multi-talented creative professional, I bring a unique set of skills to the table. I'm a passionate video editor, skilled graphic designer, and proficient web developer with a knack for coding. With my attention to detail and artistic eye, I aim to create captivating content that engages audiences across all social platforms. From sleek product demos to stunning brand visuals and immersive web experiences, I strive to deliver high-quality work that exceeds expectations. Follow me for a creative journey unlike any other!
+hello! As creative professionals, we're excited to connect with people who share our passion for design and digital. Specializing in video editing, graphic design, and web development, I pay attention to detail and aesthetics to create content that truly resonates with my audience. But beyond creating beautiful products, we also believe in creating meaningful connections with our clients and colleagues. So let's work together to create something truly amazing and have fun in the process
 
 
 ## 🌐 Socials:
